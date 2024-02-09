@@ -1,4 +1,4 @@
-### Hi~!👋 Thank you for visiting my GitHub channel ~__~
+### Hi~!👋 Thank you for visiting my GitHub channel O.o
 
 ## My Baekjoon Score
 ---
